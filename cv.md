@@ -1,5 +1,8 @@
 # Alexey Smolik
 ### Full-stack developer
+
+![](https://sun9-2.userapi.com/c638231/v638231844/2cabf/ow76YHCpuI0.jpg)
+
 ### Contact Info:
 
 ```
